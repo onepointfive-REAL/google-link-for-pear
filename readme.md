@@ -1,1 +1,1 @@
-[Google](https://google.com)
+[Google](https://warp.rf.gd/google)
